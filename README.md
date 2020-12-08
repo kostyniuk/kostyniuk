@@ -1,4 +1,5 @@
-Software Engineer from Kyiv, 🇺🇦.
+Software Engineer at AMFG
+from Kyiv, 🇺🇦.
 20 y.o.
 Fell in luv with JS 🤍.
 Node JS 🔥 / React 🚀.
