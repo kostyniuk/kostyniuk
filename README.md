@@ -1,7 +1,5 @@
 Software Engineer at AMFG
-from Kyiv, 🇺🇦.
-21 y.o.
-Fell in luv with JS 🤍.
+from Kyiv, 🇺🇦. now in Stockholm 🇸🇪
+24 y.o.
 Node JS 🔥 / React 🚀.
-English learner ✨.
 Football ⚽ and the NBA fan 🏀.
